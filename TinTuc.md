@@ -1,19 +1,16 @@
-## 📋 Danh sách bài viết tin tức:
+## 🔗 [Tin tức](https://alocandientu.vn/category/tin-tuc)
 
-1. [**Cân điện tử và ứng dụng trong cuộc sống**](https://alocandientu.vn/category/tin-tuc)  
-   *Tìm hiểu về các loại cân điện tử và  ứng dụng của chúng trong đời sống hàng ngày.*
+### Bài viết mới nhất:
 
-2. [**Hướng dẫn sử dụng và bảo trì cân điện tử**](https://alocandientu.vn/category/tin-tuc)  
-   *Những lưu ý quan trọng khi sử dụng và cách để giữ cân điện tử luôn bền bí và chính xác.*
+1. **[Cân sức khỏe Rapido RSB02-S](https://alocandientu.vn/can-suc-khoe-rapido-rsb02-s)**
 
-3. [**Lựa chọn cân điện tử phù hợp với nhu cầu**](https://alocandientu.vn/category/tin-tuc)  
-   *Hướng dẫn chọn loại cân điện tử phù hợp cho cá nhân và doanh nghiệp.*
+2. **[Bạn Đã Biết Gì Về Cân Xe Tải Điện Tử? Hãy Cùng Tìm Hiểu!](https://alocandientu.vn/category/tin-tuc/can-xe-tai-dien-tu)**
 
-4. [**Cân điện tử công nghiệp và những tính năng nổi bật**](https://alocandientu.vn/category/tin-tuc)  
-   *Các đặc điểm và tính năng của cân điện tử trong các ngành công nghiệp.*
+3. **[Bạn Đã Biết Gì Về Cân Sức Khỏe Điện Tử? Hãy Cùng Tìm Hiểu!](https://alocandientu.vn/category/tin-tuc/can-suc-khoe-dien-tu)**
 
-5. [**Bảng giá cân điện tử mới nhất**](https://alocandientu.vn/category/tin-tuc)  
-   *Cập nhật bảng giá các loại cân điện tử phổ biến nhất hiện nay.*
+4. **[Bạn Đã Biết Gì Về Cân Treo Điện Tử? Cùng Tìm Hiểu!](https://alocandientu.vn/category/tin-tuc/can-treo-dien-tu)**
+
+5. **[Bạn Đã Biết Gì Về Cân Tiểu Ly? Cùng Tìm Hiểu!](https://alocandientu.vn/category/tin-tuc/can-tieu-ly)**
 
 ---
 
@@ -22,12 +19,11 @@
 **CÂN ĐIỆN TỬ MINH QUANG**  
 *Giá Cả Cạnh Tranh - Hợp Lý - Đãi Ngộ Cao*
 
-🏠 **Địa chỉ:** Số 162, Thôn 13, Hoà Khánh, TP. Buôn Ma Thuột, Đắk Lắk *(Gần Chợ Đoàn Kết - QL14)*  
-📞 **Điện thoại:** 0767.110.111 - 0979.099.667  
+🏠 **Địa chỉ:** Số 162, Thôn 13, Hoà Khánh, TP. Buôn Ma Thuột, Đắk Lắk – Gần Chợ Đoàn Kết - QL14  
+📞 **Điện thoại:** 0767.110.111 – 0979.099.667  
 📧 **Email:** [candientuminhquang@gmail.com](mailto:candientuminhquang@gmail.com)  
 🌐 **Website:** [www.alocandientu.vn](https://www.alocandientu.vn)  
+💬 **Zalo:** 0767.110.111
 
 💡 *Hãy liên hệ ngay để được tư vấn chi tiết!* 🚀
-
----
 
