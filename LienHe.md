@@ -1,4 +1,4 @@
-## 🔗 [Liên hệ trực tiếp tại đây](https://alocandientu.vn/lien-he)
+## 🔗 [Liên hệ](https://alocandientu.vn/lien-he)
 
 ## 📞 Thông tin liên hệ:
 
